@@ -1,0 +1,1 @@
+# senhasAleat-rias
